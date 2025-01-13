@@ -1,2 +1,0 @@
-# mystic-Odisha
-college project
